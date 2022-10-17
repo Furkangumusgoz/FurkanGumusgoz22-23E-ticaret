@@ -1,0 +1,1 @@
+# FurkanGumusgoz22-23E-ticaret
